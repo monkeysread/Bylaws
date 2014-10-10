@@ -572,7 +572,7 @@ The President shall have first preference in room selection.  Preference then go
 1. There must be a sober brother at the house at all times alcohol is being consumed in a public manner.
 2. At the Beginning of a semester the risk manager must designate a sober brother for every Friday and Saturday night, as well as any night with a scheduled event that may result in drinking such as parties, gatherings, or any other night the brotherhood decides that it is necessary. 
 3. Every eligible brother must fulfil this role such that it is evenly distributed among the brotherhood. Any brother unwilling to fulfil this role can be fined at the request of the risk manager no more than $50.
-4. Any eligible brother who does not fulfil their duties as the sober brother can be fined at the request of the risk manager no more than $100. 
+4. Any eligible brother who does not fulfil their responsibilities as the sober brother can be fined at the request of the risk manager or class B vote of the house no more than $100.
 5. The list of eligible sober brothers can be determined by the list of all active brothers minus any brother under the age of 18 and any brother who does not have a valid drivers license.
 
 ### Section 5: Sober Brother Responsibilities
